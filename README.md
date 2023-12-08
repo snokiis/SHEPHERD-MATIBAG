@@ -1,5 +1,5 @@
 # SHEPHERD-MATIBAG
-Hi my name is Shepherd Matibag, I LIVE IN MAINIT MABINI BATANGAS im 2o years old
+Hi my name is Shepherd Matibag, I LIVE IN MAINIT MABINI BATANGAS im 20 years old
 
 My set of hobbies
 
